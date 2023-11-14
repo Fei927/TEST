@@ -13,13 +13,13 @@
 - 江西欣博跃科技有限公司（江西工厂）
 - 深圳市欣博跃电子有限公司（香港总部）
 ## 深圳市欣博跃电子有限公司（总部）
- ![[深圳市欣博跃电子有限公司（总部）](https://cdn.wavlinkstore.com/oss/20221123/161820/admin1/80758.jpg)](https://www.wavlink.com/zh_cn/ad/merchants)
+ ![[Alt text](/image-1.png)](https://www.wavlink.com/zh_cn/ad/merchants)
 > 地址：深圳市光明区光明街道华强创意产业园3C17-20楼 
 
 > 电话：0755-88823721-8010
 
 ## 深圳市欣博跃电子有限公司（龙华工厂）
-
+![Alt text](image-2.png)
 ![[深圳市欣博跃电子有限公司（龙华工厂）](https://cdn.wavlinkstore.com/oss/20221123/161819/admin1/34396.jpg)](https://www.wavlink.com/zh_cn/ad/merchants)
 > 地址：深圳市龙华区大浪新岭路93号泰松工业园2-4栋
 
