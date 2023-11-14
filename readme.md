@@ -19,7 +19,7 @@
 > 电话：0755-88823721-8010
 
 ## 深圳市欣博跃电子有限公司（龙华工厂）
-![Alt text](image-2.png)
+![Alt text](https://cdn.wavlinkstore.com/oss/20221123/161816/admin1/16446.jpg)
 ![[深圳市欣博跃电子有限公司（龙华工厂）](https://cdn.wavlinkstore.com/oss/20221123/161819/admin1/34396.jpg)](https://www.wavlink.com/zh_cn/ad/merchants)
 > 地址：深圳市龙华区大浪新岭路93号泰松工业园2-4栋
 
