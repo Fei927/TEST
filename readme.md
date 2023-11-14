@@ -13,20 +13,20 @@
 - 江西欣博跃科技有限公司（江西工厂）
 - 深圳市欣博跃电子有限公司（香港总部）
 ## 深圳市欣博跃电子有限公司（总部）
- ![[Alt text](/image-1.png)](https://www.wavlink.com/zh_cn/ad/merchants)
+ ![[Alt text](/image-1.png)](https://cdn.wavlinkstore.com/oss/20221123/161818/admin1/51227.jpg)
 > 地址：深圳市光明区光明街道华强创意产业园3C17-20楼 
 
 > 电话：0755-88823721-8010
 
 ## 深圳市欣博跃电子有限公司（龙华工厂）
-![Alt text](https://cdn.wavlinkstore.com/oss/20221123/161816/admin1/16446.jpg)
-![[深圳市欣博跃电子有限公司（龙华工厂）](https://cdn.wavlinkstore.com/oss/20221123/161819/admin1/34396.jpg)](https://www.wavlink.com/zh_cn/ad/merchants)
+
+![深圳市欣博跃电子有限公司（龙华工厂）](https://cdn.wavlinkstore.com/oss/20221123/161819/admin1/34396.jpg)
 > 地址：深圳市龙华区大浪新岭路93号泰松工业园2-4栋
 
 > 电话：0755-88823721-8010
 
 ## 江西欣博跃科技有限公司（江西工厂）
-![[江西欣博跃科技有限公司（江西工厂）](https://cdn.wavlinkstore.com/oss/20221123/161816/admin1/16446.jpg)](https://www.wavlink.com/zh_cn/ad/merchants)
+![Alt text](https://cdn.wavlinkstore.com/oss/20221123/161816/admin1/16446.jpg)
 
 > 地址：江西省龙南市龙南经济技术开发区建投控股产业园六区
 
@@ -38,15 +38,15 @@
 
 ## 深圳市欣博跃电子有限公司（香港总部）
 
-![[深圳市欣博跃电子有限公司（香港总部）](https://cdn.wavlinkstore.com/oss/20221123/161820/admin1/80758.jpg)](https://www.wavlink.com/zh_cn/ad/merchants)
+![深圳市欣博跃电子有限公司（香港总部）](https://cdn.wavlinkstore.com/oss/20221123/161820/admin1/80758.jpg)
 
 >地址：香港九龍灣宏開道15號九龍灣工業中心10樓11室
 
 
 >邮箱：ann@wavlink.com
 
-![[采购](https://cdn.wavlinkstore.com/oss/20221125/094405/admin1/77382.jpg)](https://www.wavlink.com/zh_cn/ad/merchants)
+![采购](https://cdn.wavlinkstore.com/oss/20221125/094405/admin1/77382.jpg)
 
-![[业务](https://cdn.wavlinkstore.com/oss/20221125/094404/admin1/97370.jpg)](https://www.wavlink.com/zh_cn/ad/merchants)
+![业务](https://cdn.wavlinkstore.com/oss/20221125/094404/admin1/97370.jpg)
 
 ###### welcom to WAVLINK.
